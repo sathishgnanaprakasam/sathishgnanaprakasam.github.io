@@ -1,2 +1,0 @@
-# Sathish Gnanaprakasam
-### Software Engineer
